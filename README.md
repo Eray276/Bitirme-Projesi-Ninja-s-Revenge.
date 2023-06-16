@@ -1,0 +1,1 @@
+# Bitirme-Projesi-Ninja-s-Revenge.
